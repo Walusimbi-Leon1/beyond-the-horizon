@@ -1490,6 +1490,8 @@ She laughed despite herself. "You're impossible."
 
 ---
 
+## Chapter 17: The Wedding
+
 The wedding was held in a garden in Zanzibar, a compromise between two families and two traditions.
 
 Samira had insisted on a Muslim ceremony, and Grace had insisted on a Christian blessing. After weeks of negotiation, they had arrived at a solution: a quiet nikah ceremony in the morning, followed by a Christian blessing in the afternoon, and a reception that blended the music, food, and traditions of both cultures.

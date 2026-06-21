@@ -35,7 +35,8 @@ When their paths cross on a safari in Serengeti National Park, the connection is
 
 ## 🌐 Read Online
 
-Coming soon at: **https://walusimbi-leon1.github.io/beyond-the-horizon/**
+✅ **Read online:** https://walusimbi-leon1.github.io/beyond-the-horizon/book.html
+- 📥 **[Download PDF](https://walusimbi-leon1.github.io/beyond-the-horizon/Beyond%20the%20Horizon.pdf)**
 
 ## 📚 Part of the SGSS Literary Collection
 

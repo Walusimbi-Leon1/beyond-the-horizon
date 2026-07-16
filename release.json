@@ -1,6 +1,7 @@
 {
-  "current_version": "1.0",
+  "current_version": "2.0",
   "releases": [
-    {"version": "1.0", "tag": "v1.0", "date": "2026-07-16", "title": "Beyond the Horizon", "description": "Epic cross-border love story spanning East Africa — 25K words, 21 chapters"}
+    {"version": "1.0", "tag": "v1.0", "date": "2026-07-16", "title": "Beyond the Horizon", "description": "East Africa Edition — Zanzibar and Serengeti love story"},
+    {"version": "2.0", "tag": "v2.0", "date": "2026-07-16", "title": "Beyond the Horizon", "description": "International Edition — Paris, Tokyo, New York, Bogotá, Osaka romance"}
   ]
 }

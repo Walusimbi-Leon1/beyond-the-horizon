@@ -1,0 +1,17 @@
+{
+  "title": "Beyond the Horizon",
+  "subtitle": "A Novel",
+  "genre": "Romance",
+  "author": "Walusimbi Leon (SGSS)",
+  "description": "Elara Fontaine, a quiet architecture student in Paris, meets a warm, laughing bookshop owner and discovers love that transcends oceans and continents.",
+  "style": "Elegant, warm third-person prose. Vivid sensory description, romantic and hopeful, with a film-like quality.",
+  "characters": "Elara Fontaine — architecture student who came to Paris to disappear; a tall, dark-haired bookshop owner with warm brown eyes.",
+  "setting": "Paris and beyond.",
+  "notes": "Early chapters — the meeting in the rain at the bookshop. Develop their connection slowly and beautifully; keep the promise of faraway horizons.",
+  "chapterTitle": "Chapter",
+  "mdFiles": ["v2.0/book.md"],
+  "htmlFiles": ["v2.0/book.html"],
+  "indexInject": null,
+  "mdHeadingLevel": 3,
+  "targetWords": 2000
+}

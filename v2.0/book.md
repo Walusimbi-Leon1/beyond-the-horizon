@@ -616,6 +616,138 @@ Behind her, Mateo laid Sakura on the old velvet sofa and covered her with a coat
 
 They stood there a long time, listening to the rain, watching the street, feeling the night move past them like a quiet river. The shop was still and warm around them. The window was open. The horizon was out there, gray and gold and impossible, exactly where it had always been — and exactly where they had always known it would be waiting.
 
+### Chapter 9 — Toward Morning
+
+The rain stopped some time before dawn.
+
+Elara did not remember falling asleep. She remembered the weight of Mateo's arm, the sound of water on the window, the way the streetlamp had turned the wet cobbles to a river of gold. And then there was gray light on the ceiling, the cry of a bird, and the shop was still around her like the inside of a held note.
+
+She lay a moment without moving. Sakura was curled against her side, breath slow and deep, one paint-stained hand resting on the velvet arm of the sofa. The grandfather's coat had slipped down to their ankles, and Elara pulled it back over her daughter's shoulder with the care that comes from twenty years of practice.
+
+Mateo was not beside her.
+
+She sat up slowly, careful not to wake Sakura, and saw him at the back of the shop, standing before the open window with his back to her. He wore the same rumpled shirt from the night before. In the gray morning he looked less like a man who owned a bookshop than like a man waiting for a tide to turn.
+
+She crossed the creaking floor and stood beside him. The street outside was washed clean, the sky a pale pearl, and a single café awning across the way had already been raised, its canvas dripping the last of the night.
+
+"Judith's note," Mateo said quietly, without turning.
+
+She looked down. He held it in both hands, a small rectangle of paper, creased along the lines where it had been folded into the key box. The words were there, in a neat, spidery hand: *The door has always been open. The question is which direction.*
+
+"Did you know her well?" Elara asked.
+
+"Forty years," he said. "She found this shop when I was a boy. She let me read here when my mother was at work. She taught me that a bookshop is not a place that holds books. It's a place that holds the moment before you decide who you're going to be."
+
+He turned. His eyes were the same warm brown she had first seen through the rain twenty years ago — she knew this the way she knew the arc of a staircase or the weight of a key in her palm. Years had gathered in the corners of them, a fine weather of time, but the color had not faded. It had deepened, as if every autumn since had been folded into it.
+
+"She knew," Elara said, "that you'd come back."
+
+"She knew I'd bring you." He returned the note to the counter and turned to her. "She would have liked Sakura."
+
+"She would have liked the painting on the table."
+
+He laughed, a sound still surprised by itself. "She would have framed it. She framed everything."
+
+They stood in the window, the morning growing around them. Somewhere in the building above, a radio murmured in a language Elara didn't catch, and a pigeon landed on the sill, regarded them with a tilted eye, and departed.
+
+Sakura stirred. They watched her sit up, the coat sliding from her shoulders, her dark hair a crow's nest of sleep. She looked at the window, at the light, at her parents standing in it like figures in a painting she had not yet made.
+
+"Papa," she said. "Are we going home today?"
+
+Mateo crossed to her and knelt. "We are going to the sea," he said.
+
+It was the first time Elara had heard this. She watched him lift Sakura, saw the small, serious expression of their daughter settle into trust.
+
+"The sea?" Sakura repeated.
+
+"There is a lighthouse I want to show you," Mateo said. "It's the one from the story. The one with the window that faces the water."
+
+Elara thought of the drawing she had found the night before, tucked among the atlases — the tall window, the light falling through it, the room where nothing bad could happen. She understood now that it had never been a drawing of a building. It had been a drawing of the moment she was about to walk into.
+
+They had croissants at the bistro, and Sakura drank hot chocolate and asked the waitress if she had ever seen a lighthouse, and the waitress said yes, she had, on a trip to Brittany when she was very young, and Sakura nodded with the gravity of a child receiving intelligence from an ally. Then they took the Métro to Montparnasse, and a train west through pale-green country that grew gradually more salted, more wide, until the sky seemed to double in size and the fields gave way to rocks and the rocks gave way to the sea.
+
+Elara sat by the window, Sakura asleep on her lap, Mateo across from them with his hand resting open on the table — an invitation, a harbor. She placed her hand in his. Through the glass, the light changed, the world flattened and then opened, and she thought about how many trains they had taken in twenty years. How many cities had passed like chapters. How the horizon had always run alongside the tracks, keeping pace, never quite letting them catch it.
+
+"Why the lighthouse?" she asked, her voice low enough not to wake their daughter.
+
+Mateo looked out at the sea, which had just appeared — a long, gray line, paler than the sky, like the edge of a secret. "My grandfather was a sailor," he said. "You knew that."
+
+"I knew the coat. Not the rest."
+
+"He wasn't the kind of sailor in stories. He never crossed oceans. He worked the coast — cargo, small boats, the run from Nantes to the islands. But he had a notebook in which he drew every lighthouse he had ever seen from a window on a night he couldn't sleep. When I was small, he used to tell me that a lighthouse is the only building that is honest about what it does."
+
+Elara turned to him. "What does it do?"
+
+"It doesn't keep the sea out. It tells you exactly where the danger is, and then it lets you decide whether to go in anyway. That's not a wall. That's a promise."
+
+The train curved along the coast. The gray line grew solid, resolving into water, into movement, into a plane of light that shifted with every second. Sakura stirred, lifted her head, and looked.
+
+"The sea," she breathed.
+
+"The sea," Mateo agreed.
+
+The lighthouse was not the one Elara had drawn. Or rather — it was, and it wasn't. It stood on a tongue of rock at the end of a narrow road, whitewashed, with a red band around its middle, a round tower tapering at the top and a lantern of black iron and glass. It was worn. The wind had scoured its paint to a chalky finish, and the metal railings were rusted in patches that had been painted over, imperfectly, many times.
+
+But the window was there. A single tall window in the side of the tower, facing the sea, with a small ledge of stone beneath it, as if the building itself had wanted to offer a place to rest.
+
+They climbed. The spiral stair was narrow and cool, the walls seamed with the vertical shadows of centuries. Sakura counted the steps, lost count, started again. At the top, the keeper's room was empty — a cot frame, a table, a stove of blackened iron, and the great window, unshuttered, open to the wind.
+
+Sakura went straight to it and pressed her nose to the glass. "Papa. You can see everything."
+
+Mateo lifted her so she could look out at the full spread of the sea — the white lines of breakers, the gulls riding the updrafts, the horizon where the gray of water met the gray of sky in a seam of indistinguishable light.
+
+"That's where the story begins," he said.
+
+"What story?"
+
+"The one I'm going to tell you now."
+
+He set her on the wide sill, his arms still around her, and began. He told her about a sailor who left the sea because he was afraid of it — how the water had taken a friend of his, and how grief had made the ocean a wall instead of a road. He told her how the sailor came to a city of stone and rain, a city with a thousand windows, and how he had walked for days looking for one window that faced the light. And how, in a small square, he had found a bookshop with a window that was always open, and how the woman who ran it had looked at him and said, "You're not staying, are you?" And how he had said no, he wasn't — he was going to find the lighthouse he had dreamed of since childhood. And the woman had said, "Then go. But leave the window open. So the light can find its way back."
+
+Elara stood behind them, her hand on the rough stone of the jamb. The wind came through the glass, lifting her hair. She saw herself in the story — not the woman at the bookshop, though she had become that, too, but the one who had walked into the rain twenty years ago carrying an umbrella and a fear she could not name.
+
+"And did he find the lighthouse?" Sakura asked.
+
+"He did," Mateo said. "But that wasn't the end."
+
+"Why not?"
+
+"Because the lighthouse wasn't a place. It was a person. And he was already standing in the room with her."
+
+Sakura considered this, as she considered everything, with her whole face. Then she said, "I'm cold," and the moment broke into laughter, and they wrapped her in the grandfather's coat and went down the spiral stair, their footsteps ringing in the hollow tower.
+
+Outside, the light was shifting toward evening — gold laying itself over the water in long, flat strokes. They walked to a bench at the edge of the rocks, and Elara sat with her arm around Sakura, and Mateo sat beside her, and they watched the sea turn the color of old brass.
+
+"Do you think anyone lives there now?" Sakura asked.
+
+"No," Mateo said. "It's empty. Just the lighthouse and the sea."
+
+"That's sad."
+
+"It's not," Elara said. She felt the weight of her daughter against her, the warmth of Mateo's shoulder, the salt wind on her face. "It's not sad. Because the sea keeps coming. The sea is the thing you can always return to. It doesn't close its door."
+
+Sakura was quiet. Then she said, "Like our bookshop."
+
+Elara looked at her. "Yes," she said. "Exactly like our bookshop."
+
+At dusk they took the train back toward Paris. Sakura slept. Mateo leaned his head against the window, watching the fields and the darkness come together, and Elara watched the reflection of them all in the glass — a woman, a man, a child, moving through a night that was the same color as all the other nights, except that it was also the color of the morning that would follow.
+
+She thought about Judith's note. She thought about the lighthouse, the open window, the sea that was always arriving and always leaving and never once failed to return. She thought about the horizon, which she had spent twenty years learning to build, and how it had never been a line at all. It had been the space between her hand and his — and now it was the space inside their daughter's chest, where a map was being drawn by the light of a lighthouse she had never seen until today.
+
+"You were never really here, were you?" she said quietly. "In Paris. All those years. Part of you was always on the water."
+
+Mateo turned. His eyes held that warm brown, the color of the sea after a storm has passed, when the light comes back to it. "Part of me was always at the window," he said. "Watching for you."
+
+"Who built the window, Mateo?"
+
+He smiled. "You did. You walked in out of the rain with an umbrella you never raised, and you stood in the doorway looking at the shelves like they were a country you thought you'd never see again. And I built the window around that moment. Everything else —" he glanced down at Sakura, at the dark curls against his chest, "— everything else is just the light that came through."
+
+The train ran on through the dark. The sea was behind them, invisible now, but Elara could still feel it — the way you can feel an ending and a beginning in the same breath, the way you can know you have reached the horizon at the exact moment you understand it has moved.
+
+She closed her eyes. The rhythm of the rails, the warmth of her daughter, the shoulder against hers. She let herself drift.
+
+When she opened her eyes, the lights of Paris were spreading gold across the horizon ahead of them, and the bookshop was waiting at the end of the line, its window open to the night, letting the world in.
+
 ---
 
 *— End —*
